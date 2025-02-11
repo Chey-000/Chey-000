@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Chey-000
-- 👀 I’m interested in  Programming, business development,  Analysis
-- 🌱 I’m currently learning  Full  stack
-- 💞️ I’m looking to have an offer from JP  Morgan
+- 👋 Hi, I’m @Chey
+- 👀 I’m interested in  Programming, business development,  Analysis, Growing , Loving 
+- 🌱 I’m currently Thinking ...
+- 💞️ Had a courage to build own company I’m looking for Right People 
 - 📫 How to reach me ~-> http://linkedin.com/in/sai-chaithanya-chityala-321bb9263  And also through mail chaithanyareddy.chitiyala0001@gmail.com
 
 <!---
